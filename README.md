@@ -25,6 +25,10 @@ If civilization survives the AI era, it will not be because humans became wiser.
 
 It will be because we finally remembered where the boundaries are.
 
+
+
+if anyone wants discussion can email to dd20210713@yahoo.com
+
 ---
 
 Author: **Dawn Light**
